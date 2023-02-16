@@ -1,1 +1,1 @@
-# cco_2023_1
+# Cuidado ao deixar o pc aberto. 

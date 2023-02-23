@@ -1,1 +1,1 @@
-#cuidado com o computador.
+#Cuidado ao deixar o pc aberto.
